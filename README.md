@@ -1,1 +1,1 @@
-# Intelig-ncia-Artificial-mapeando-ideias-e-prototipando-solu-es
+# Inteligencia-Artificial-mapeando-ideias-e-prototipando-solucoes
